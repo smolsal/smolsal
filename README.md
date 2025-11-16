@@ -1,7 +1,7 @@
 ## about me
 hi there im sal
-if you see me in ponytown i am usually leona from twisted wonderland but you can find me as twilit riddle, ceremonial robes riddle, and masquerade malleus.
-i do rps with those that are 18+ only as i am 22 (i usually only appear in the 18+ server so this shouldnt be a problem and yes those kinds of rps are allowed as long as we are both consenting)
+if you see me in ponytown i am usually leona from twisted wonderland but you can find me as twilit riddle, ceremonial robes riddle, and masquerade malleus. i also do sal from sally face sometimes
+i do rps with those that are 18+ only as i am 22 (i usually only appear in the 18+ server so this shouldnt be a problem)
 i am not interested in dating irl as i am taken by my lovely partner Devan
 if you ever want to contact me you can contact me on discord: smolsal
 
