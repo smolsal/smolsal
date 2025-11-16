@@ -1,4 +1,7 @@
-## Hi there 👋
+## hi there im sal
+if you see me in ponytown i am usually leona from twisted wonderland but you can find me as twilit riddle, ceremonial robes riddle, and masquerade malleus.
+i do rps with those that are 18+ only as i am 22 (i usually only appear in the 18+ server so this shouldnt be a problem and yes those kinds of rps are allowed as long as we are both consenting)
+i am not interested in dating irl as i am taken by my lovely partner Devan
 
 <!--
 **smolsal/smolsal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
