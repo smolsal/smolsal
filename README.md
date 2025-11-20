@@ -4,7 +4,7 @@ if you see me in ponytown i am usually leona from twisted wonderland but you can
 on occasion you may find me in other things such as: jinx/powder from arcane, william nozel or asta from black clover, aoba or ren from dmmd, or any other skins that link to this github
 i do rps with those that are 18+ only as i am 22 (i usually only appear in the 18+ server so this shouldnt be a problem)
 i am not interested in dating irl as i am taken by my lovely partner Devan.
-## interactions are always welcome
+## interactions are always welcome this also includes whispers
 if you ever want to contact me you can contact me on discord: smolsal
 
 <!--
