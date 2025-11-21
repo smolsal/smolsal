@@ -5,7 +5,7 @@ on occasion you may find me in other things such as: jinx/powder from arcane, wi
 i do rps with those that are 18+ only as i am 22 (i usually only appear in the 18+ server so this shouldnt be a problem)
 i am not interested in dating irl as i am taken by my lovely partner Devan.
 ## interactions are always welcome this also includes whispers
-## also if you could please just call me sal no need for smolsal </3
+## also if you could please just call me sal no need for smolsal </3 this is specifically when we are out of roleplay (when out of roleplay i will use parentheses like this ((
 if you ever want to contact me you can contact me on discord: smolsal
 
 <!--
