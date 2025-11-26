@@ -1,9 +1,9 @@
 ## about me
 hi there im sal
-if you see me in ponytown i am usually leona from twisted wonderland but you can find me as twilit riddle, ceremonial robes riddle, and masquerade malleus. i also do sal from sally face sometimes
-on occasion you may find me in other things such as: jinx/powder from arcane, william nozel or asta from black clover, aoba or ren from dmmd, or any other skins that link to this github
-i do rps with those that are 18+ only as i am 22 (i usually only appear in the 18+ server so this shouldnt be a problem)
-i am not interested in dating irl as i am taken by my lovely partner Devan.
+## if you see me in ponytown i am usually leona from twisted wonderland but you can find me as twilit riddle, ceremonial robes riddle, and masquerade malleus. i also do sal from sally face sometimes
+## on occasion you may find me in other things such as: jinx/powder from arcane, william nozel or asta from black clover, aoba or ren from dmmd, or any other skins that link to this github
+## i do rps with those that are 18+ only as i am 22 (i usually only appear in the 18+ server so this shouldnt be a problem)
+## i am not interested in dating irl as i am taken by my lovely partner Devan. doing rps with dating is fine.
 ## interactions are always welcome this also includes whispers
 ## also if you could please just call me sal no need for smolsal </3 this is specifically when we are out of roleplay (when out of roleplay i will use parentheses like this "(") only sometimes though as sometimes i forget. i am mostly in character especially with leona
 if you ever want to contact me you can contact me on discord: smolsal
