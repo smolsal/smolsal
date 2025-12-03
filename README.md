@@ -6,6 +6,7 @@ hi there im sal
 ## i am not interested in dating irl as i am taken by my lovely partner Devan. doing rps with dating is fine.
 ## interactions are always welcome this also includes whispers
 ## also if you could please just call me sal no need for smolsal </3 this is specifically when we are out of roleplay (when out of roleplay i will use parentheses like this "(") only sometimes though as sometimes i forget. i am mostly in character especially with leona
+## you can hide behind me if you need to and i can cover you
 if you ever want to contact me you can contact me on discord: smolsal
 
 <!--
