@@ -7,6 +7,7 @@ hi there im sal
 ## interactions are always welcome this also includes whispers(i usually am off tab so this is preferred so i can get back to you when i can), hugs, and cuddles if you want
 ## also if you could please just call me sal no need for smolsal </3 this is specifically when we are out of roleplay (when out of roleplay i will use parentheses like this "(") or "//" only sometimes though as sometimes i forget. i am mostly in character especially with leona
 ## you can hide behind me if you need to and i can cover you
+## currently not accepting party invitations unless we are close
 if you ever want to contact me you can contact me on discord: smolsal
 
 <!--
