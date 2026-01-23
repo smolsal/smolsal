@@ -8,6 +8,7 @@ hi there im sal
 ## taken irl and not looking for another partner at this time
 ## you can hide behind me if you need to and i can cover you
 ## currently not accepting party invitations unless we are close
+## please do not call me pooks/pookie unless we are close friends </3
 if you ever want to contact me you can contact me on discord: smolsal
 
 <!--
