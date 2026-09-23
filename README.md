@@ -1,6 +1,6 @@
 ## about me
 hi there im sal
-## if you see me in ponytown i am usually leona from twisted wonderland but you can find me as twilit riddle, ceremonial robes riddle, and masquerade malleus. i also do sal from sally face sometimes
+## if you see me in ponytown i am sometimes leona from twisted wonderland but on other occasions you can find me as luo binghe from scum villain, hua cheng from heaven officials blessing, jiang cheng from mo dao zu shi, or lan wangji from mo dao zu shi
 ## on occasion you may find me in other things
 ## i do rps with those that are 18+ only as i am 23 (i usually only appear in the 18+ server so this shouldnt be a problem)
 ## interactions are always welcome (unless i have dniu [name here]) this also includes whispers(i usually am off tab so this is preferred so i can get back to you when i can), hugs, and cuddles if you want
